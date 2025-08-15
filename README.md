@@ -36,8 +36,8 @@
 ---
 
 ### 📫 Let’s Connect
-- 💼 [LinkedIn](https://www.linkedin.com/in/rahul-devops/)
+- 💼 [LinkedIn](https://www.linkedin.com/in/rahul-raypure/)
 - 🌐 Portfolio: _coming soon_
-- 📧 Email: rahul.devops@example.com
+- 📧 Email: raypurerahul99@gmail.com
 
 ---
